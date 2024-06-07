@@ -1,1 +1,1 @@
-# [Mammoth Maneesilp](MammothM.GitHub.IO)
+# MammothM.GitHub.IO
